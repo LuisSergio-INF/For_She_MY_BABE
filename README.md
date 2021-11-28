@@ -28,7 +28,7 @@ Provavelmente eu deixe o link dessa pagina junto com seus presentes.
   E isso tudo a pouco menos de 3 semanas para seu aniversário, as coisa chegaram rápido demais. Ninguém soube só pra ter certeza que não te contaram.
   
   Você é uma mulher maravilhosa, amei te conhecer o pitoko chegar no sdc com duas garotas me fez ter uma das melhores amizade que eu tive na empresa, você é incrível e inteligente, o melhor do mundo não é o suficiente para você, foram aproveitados cada segundo.
-  São frases que provavelmente não conseguiria reproduzir, você me deixa nervoso, a cabeça enche de pensamentos e acaba que se tinha algo pra falar, não falo por excitação ou por que esqueci. Além de que eu não sou muito uma pessoa de se expressar ou desabafar
+  São frases que provavelmente não conseguiria reproduzir, você me deixa nervoso, a cabeça enche de pensamentos e acaba que se tinha algo pra falar, não falo por excitação ou por que esqueci. Além de que eu não sou muito uma pessoa de se expressar ou desabafar. minha demonstação de afeto é dar chocolate e irritação.
   
   INCLUSIVE ESQUECI DE MENCIONAR O ESTILETE DE PATINHAAAAAAA
   
